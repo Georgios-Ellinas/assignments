@@ -6,11 +6,11 @@ e-mail: ellinas_georgios@hotmail.com  \|  mobile: +31 645308397  \|  [LinkedIn](
 
 ### PROFESSIONAL EXPERIENCE / VOLUNTEERING 
 
-##### *11/2014 –11/2015:* Mandatory Military Service, Hellenic Air Force
+##### *11/2014 –11/2015:*    Mandatory Military Service, Hellenic Air Force
 * Private, General Staff Department, Ministry of National Defence (duration: 5 months)
 * Supply Manager Assistant, Zoumberi air base (duration: 7 months)
 
-##### *06/2014 –11/2014:* Internship at Atlantis Consulting S.A., Athens, Greece
+##### *06/2014 –11/2014:*    Internship at Atlantis Consulting S.A., Athens, Greece
 _(Subsidies related services, Management Consulting, Specialised IT Applications, Science & Technology policy studies)_
 * Participated in the SMART-INNO, a project aiming to develop a networking system capable of monitoring and fostering research & innovation capacity in SMEs across the Adriatic Region.
 * Carried out desk research on public/private funding instruments, incubation/clustering initiatives, research & innovation policies, research institutions and technology parks in the Greek Region.
@@ -23,11 +23,11 @@ _(Subsidies related services, Management Consulting, Specialised IT Applications
 * Used the accounting software SUN
 * Coordinated with AAH Headquarters’ Finance Departments and banking institutions
 
-##### *04/2012 –07/2012:* Receptionist Intern at President Hotel, Athens, Greece
+##### *04/2012 –07/2012:*    Receptionist Intern at President Hotel, Athens, Greece
 
-##### *07/2011 –10/2011:* Restaurant Service Intern at Mykonos Blu Hotel, Mykonos, Greece
+##### *07/2011 –10/2011:*    Restaurant Service Intern at Mykonos Blu Hotel, Mykonos, Greece
 
-##### *01/2010 –06/2011:* Freelance Employment at OVB Consulting, Athens, Greece
+##### *01/2010 –06/2011:*    Freelance Employment at OVB Consulting, Athens, Greece
 * Contacting and meeting with customers for the purposes of consulting & financial programming
 Market research on financial products
 
