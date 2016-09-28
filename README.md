@@ -1,3 +1,3 @@
 # assignments
 
-[CV link](assignments/CV.md)
+[CV link](https://github.com/Georgios-Ellinas/assignments/blob/master/CV.md)
