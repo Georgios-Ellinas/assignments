@@ -5,6 +5,7 @@ e-mail: ellinas_georgios@hotmail.com  \|  mobile: +31 645308397  \|  [LinkedIn](
 
 
 ### PROFESSIONAL EXPERIENCE / VOLUNTEERING 
+----------------------------------------------
 
 ##### *11/2014 –11/2015:*    Mandatory Military Service, Hellenic Air Force
 * Private, General Staff Department, Ministry of National Defence (duration: 5 months)
@@ -32,6 +33,7 @@ _(Subsidies related services, Management Consulting, Specialised IT Applications
 Market research on financial products
 
 ### ONLINE COURSES
+-----------------------------
 
 * __COURSERA:__
  * ‘Financial Engineering & Risk Management (Part I)’
@@ -43,6 +45,7 @@ Market research on financial products
  * ‘Knowledge Management and Big Data in Business’
 
 ### LANGUAGES & SKILLS
+------------------------------------------
 * Software Certificated in Microsoft Office (International Diploma in IT Skills Proficiency)
 * Versed in: Accounting Software SUN, Hotel Program Epitome PMS, and WinEra Standard 5.91
 * English (fluent), Greek (native)
